@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Grishnackh-13
+- 👀 I’m interested in True Norwegian Black Metal
+- I’m currently learning play guitar
+- 📫 How to reach me, die
