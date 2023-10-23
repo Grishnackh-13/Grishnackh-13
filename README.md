@@ -1,5 +1,5 @@
 - Hi, I’m @Grishnackh-13
-- I’m interested in True Norwegian Black Metal
+- I’m interested in learn about Black Metal
 - I’m currently learning play bass and electric guitar
 
 
